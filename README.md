@@ -1,2 +1,1 @@
-# gabriel
-  unodostres
+# gabril tarcaya
